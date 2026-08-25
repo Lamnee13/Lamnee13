@@ -1,5 +1,4 @@
-<p align="center"><img src="./9a1817473c7c41ce37774d0839e1a499.jpg" width="600">
-</p>
+<img src="Khong_Co_Tieu_e9_20260826025408.png" width="1000"/>
 <!--
 **Lamnee13/Lamnee13** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
