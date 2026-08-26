@@ -1,3 +1,4 @@
+![GIF](./245a7eaf38d8830658c482962a4ef567.gif )
 <img src="Khong_Co_Tieu_e9_20260826025408.png" width="1000"/>
 <!--
 **Lamnee13/Lamnee13** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
