@@ -27,6 +27,7 @@
 
 ₊˚⊹ ───── ☆ ───── ⊹˚₊
 <img src="tumblr_d93a4ef790accb6976c5e13c53927d06_696356ba_2048.png" width="1000"/>
+<img src="Không Có Tiêu Đề472_20260826210423.png" width="1000"/>
 <div align="center">
         
 
