@@ -1,3 +1,5 @@
+<div align="center">
+  
 ![GIF](./245a7eaf38d8830658c482962a4ef567.gif )
 <img src="Khong_Co_Tieu_e9_20260826025408.png" width="1000"/>
 <h2 align="center">∘˚˳°⁽⁽ଘCall me Lam!ଓ⁾⁾｡☆</h2>
@@ -24,6 +26,6 @@
 
 ₊˚⊹ ───── ☆ ───── ⊹˚₊
 <img src="tumblr_d93a4ef790accb6976c5e13c53927d06_696356ba_2048.png" width="1000"/>
-
+<div align="center">
         
 
