@@ -10,8 +10,8 @@
 
 ୨୧ I'm 19 years old ♡
 
-₊˚⊹ ───── ( ꈍᴗꈍ) ───── ⊹˚₊
-
+₊˚⊹ ───── ✧  ───── ⊹˚₊
+![GIF](./0fca0c5c79d71d39112b4936992a0676.gif )
 > 𓆩♡𓆪 Pronouns: anything you want!
 >
 > 𓆩♡𓆪 I always offtab / spend a lot of time playing another games
