@@ -6,8 +6,7 @@
 <h2 align="center">∘˚˳°⁽⁽ଘCall me Lam!ଓ⁾⁾｡☆</h2>
 <img src="tumblr_484337bb3e33bc4bb8e4d33b7745eebb_46dca807_1280.png" width="600"/>
 <p align="center">
-  <span style="color:#ff69b4;">ʕっ•ᴥ•ʔっmulti-fandom, free to talk to me! ♡</span>
-</p>
+ <h2 align="center">ʕっ•ᴥ•ʔっmulti-fandom, free to talk to me! ♡</h2>
 <img src="tumblr_4e653f4a2006a97c67fe9d4246c55d06_f40f6209_540.png" width="500"/>
 ## ✦ About me 𓂃 ࣪˖ ִֶָ
 
