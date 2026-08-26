@@ -6,7 +6,7 @@
 <h2 align="center">∘˚˳°⁽⁽ଘCall me Lam!ଓ⁾⁾｡☆</h2>
 <img src="tumblr_484337bb3e33bc4bb8e4d33b7745eebb_46dca807_1280.png" width="600"/>
 <p align="center">
- <h2 align="center">ʕっ•ᴥ•ʔっmulti-fandom, free to talk to me! ♡</h2>
+ <h2 align="center">ʕっ•ᴥ•ʔっmulti-fandom, free to int! ♡</h2>
 <img src="tumblr_4e653f4a2006a97c67fe9d4246c55d06_f40f6209_540.png" width="500"/>
 ## ✦ About me 𓂃 ࣪˖ ִֶָ
 
@@ -18,7 +18,7 @@
 >
 > 𓆩♡𓆪 I always offtab / spend a lot of time playing another games
 >
-> 𓆩♡𓆪 Currently obsessed with Reverse: 1999 and Forsaken — don't be shy to talk to me! ^_^
+> 𓆩♡𓆪 Currently obsessed with Reverse: 1999 and Forsaken! ^_^
 >
 > 𓆩♡𓆪 Artist & Writer
 >
