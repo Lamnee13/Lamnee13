@@ -8,7 +8,7 @@
 <p align="center">
  <h2 align="center">multi-fandom ૮꒰ ˶• ༝ •˶꒱ა  ♡</h2>
 <img src="tumblr_4e653f4a2006a97c67fe9d4246c55d06_f40f6209_540.png" width="500"/>
-## ✦ About me 𓂃 ࣪˖ ִֶָ
+₊˚⊹ 𐙚 ✦ About me 𓂃 ࣪˖ ִֶָ
 
 ୨୧ I'm 19 years old ♡
 
